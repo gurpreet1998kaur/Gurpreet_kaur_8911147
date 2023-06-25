@@ -1,1 +1,2 @@
-# Gurpreet_kaur_8911147
+Name - Gurpreet kaur sran
+Student id - 8911147
